@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://files.catbox.moe/f502sc.png" alt="Image 1">
+  <img src="https://files.catbox.moe/4e18di.png" alt="Image 1">
 </p>
 <p align="center">dniuf feel free to send add</p>
 
