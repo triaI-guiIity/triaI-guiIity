@@ -1,7 +1,7 @@
 <p align="center">
-  <img src="https://files.catbox.moe/f4jwb4.jpg" alt="Image 1">
+  <img src="https://files.catbox.moe/m2e3c9.png" alt="Image 1">
 <p align="center">
-  <img src="https://files.catbox.moe/3aras4.png" alt="Image 2">
+  <img src="https://files.catbox.moe/xd921d.png" alt="Image 2">
 <p align="center">
   <strong>m not homophobic i just dgaf & not interested in + i'm cool with terrible jokes (include racist, sex, mom, dad jokes, suicidal, homophobic, homosexual)/just if you don't actually mean it</strong></p>
 
